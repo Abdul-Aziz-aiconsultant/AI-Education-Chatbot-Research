@@ -25,5 +25,5 @@ AI, Chatbot, Education Technology, GPT, Low-Income Learning, EdTech
 
 Feel free to connect:  
 📧 Email: abdulazizofficialwork@gmail.com  
-🌍 [LinkedIn](https://www.linkedin.com/) (Add your profile link)
+🌍 LinkedIn: https://www.linkedin.com/in/abdulaziz2966/
 
